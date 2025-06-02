@@ -1,3 +1,7 @@
-#Exquisite-corpse-Fang-Chen 
-dont count the days
-meke the days count
+#Exquisite-corpse-Fang-Chen
+
+don't count the days
+make the days count
+
+Do one thing every day that scares you. 🚀
+Just one small positive thought in the morning can change your whole day.
